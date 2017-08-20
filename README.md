@@ -1,1 +1,0 @@
-# skhazri.github.io
